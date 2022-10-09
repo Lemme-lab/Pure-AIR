@@ -9,5 +9,5 @@
 ----
 ![App](https://user-images.githubusercontent.com/71924682/194723714-7a76a9bd-dd5f-4bbc-bb87-5f61333f87d8.png)
 ----
-![Unbenannt-1 (14)](https://user-images.githubusercontent.com/71924682/194753583-9c10f6c5-3717-4c61-be8e-ae31489a2755.png)
+![Unbenannt-2 (14)](https://user-images.githubusercontent.com/71924682/194759477-49a0e80b-bc92-4d95-b8a5-a91d37c83acd.png)
 ----
